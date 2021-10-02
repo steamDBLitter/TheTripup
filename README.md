@@ -7,3 +7,5 @@ Once we had memes, now we don't have anything.
 
 # German Banana:
 ![German Banana](http://i.imgur.com/6SkTkEz.jpg)
+
+![](https://i.miomoto.de/boom.gif)
